@@ -35,6 +35,7 @@ _Thanks for stopping by!_
 
 ☆
 
-
+https://whalerus.atabook.org
+https://guns.lol/appleqk
 
 
