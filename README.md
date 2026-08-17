@@ -9,12 +9,19 @@
 🕰️ 𝑩𝒆𝒇𝒐𝒓𝒆 𝒀𝒐𝒖 𝑰𝒏𝒕𝒆𝒓𝒂𝒄𝒕
 
 _♡ Please be respectful and kind._
+
 _♡ I can be shy at first, so don't take my quietness personally._
+
 _♡ I enjoy silly conversations, but please respect my boundaries._
+
 _♡ Don't pressure me to share personal information._
+
 _♡ Tone tags are appreciated when something might be misunderstood._
+
 _♡ I may take a while to reply sometimes — please be patient!_
+
 _♡ No unnecessary drama, harassment, or disrespect. 🖤_
+
 _♡ c*h is always welcome._
 
 ╰─────────────── ⋆⋅☆⋅⋆ ───────────────╯
@@ -24,6 +31,7 @@ _♡ c*h is always welcome._
 🎀 Sweet once comfortable
 
 📜 Nostalgic & sentimental
+
 🥀 Can be chaotic with the right people
 
 
@@ -43,9 +51,13 @@ roses • coffee-shop afternoons • film cameras_
 🎀 𝑪𝒖𝒓𝒓𝒆𝒏𝒕𝒍𝒚 𝑰𝒏𝒕𝒐
 
 ♡ music 
+
 ♡ art 
+
 ♡ vintage fashion 
+
 ♡ coding 
+
 ♡ random fun
 
 🖤 𝑺𝒊𝒈𝒏 𝑶𝒇𝒇
