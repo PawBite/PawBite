@@ -9,7 +9,7 @@
 
 🕰️ 𝑩𝒆𝒇𝒐𝒓𝒆 𝒀𝒐𝒖 𝑰𝒏𝒕𝒆𝒓𝒂𝒄𝒕
 
-_♡ Please be respectful and kind._ ![moving emoji](videoframe_2223.jpg)
+_♡ Please be respectful and kind._ 
 
 
 
