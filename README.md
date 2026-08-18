@@ -11,7 +11,7 @@
 
 _♡ Please be respectful and kind._
 
-![image alt](Untitled4_20260818114203.jpg)
+
 
 _♡ c*h is always welcome._
 
