@@ -29,13 +29,8 @@ Aww Hii @KALE1D0SCOPE <<333 💗💗
 ╭─────────────── ⋆⋅☆⋅⋆ ───────────────╮
 ![Alt Text](4a01599692eaa47afc113c5a3b043ed8.gif)
 
-🖤 𝑺𝒊𝒈𝒏 𝑶𝒇𝒇
+$\color{cyan}{\text{_thank you for stopping bye!}}$
 
-_Thanks for stopping by!_
 
-☆
-
-https://whalerus.atabook.org
-https://guns.lol/appleqk
 
 
