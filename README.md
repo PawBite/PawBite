@@ -30,6 +30,6 @@ Aww Hii @KALE1D0SCOPE <<333 💗💗
 ![Alt Text](4a01599692eaa47afc113c5a3b043ed8.gif)
 
 
-```diff + This line will be green - This line will be red ! This line will be orange # This line will be gray ```
+```Thank you for visiting ^_^```
 
 
