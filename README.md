@@ -1,6 +1,6 @@
 ## _Your hand in my hand_
 
-¡[alt text](images.png)
+
 
 ![image alt](Untitled1_20260817155105.jpg)
 
