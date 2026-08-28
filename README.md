@@ -24,7 +24,7 @@ _♡ c*h is always welcome._
 I tend to observe first before opening up. Once I'm comfortable, expect random thoughts, jokes, and way too much excitement over things I like. 🎀
 
 
-![image alt](Untitled1_20260828173244.jpg)
+![image alt](Untitled4_20260828174503.jpg)
 
 
 
