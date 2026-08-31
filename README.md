@@ -1,4 +1,4 @@
-
+⁹
 
 ![image alt](Untitled3_20260831173332.png)
 
@@ -40,7 +40,7 @@ I tend to observe first before opening up. Once I'm comfortable, expect random t
 
 Aww Hii @KALE1D0SCOPE <<333 💗💗
 
-[ check strwpage ]
+
 
 ╭─────────────── ⋆⋅☆⋅⋆ ───────────────╮
 ![Alt Text](4a01599692eaa47afc113c5a3b043ed8.gif)
