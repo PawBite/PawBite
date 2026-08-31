@@ -1,5 +1,5 @@
 
-![image alt](Untitled1_20260901021113.png)
+![image alt](Untitled4_20260901021823.png)
 
 
 
@@ -23,6 +23,7 @@
 ![Alt text](caretaker-caretaker-die-of-death.gif)
 
 
+![image alt](Untitled4_20260901021941.png)
 ♡
 ╭─────────────── ⋆⋅☆⋅⋆ ───────────────╮
 
@@ -51,5 +52,5 @@ Aww Hii @KALE1D0SCOPE <<333 💗💗
 
 ```Thank you for visiting ^_^```
 
-![image alt](Untitled1_20260901021005.png)
+![image alt](Untitled4_20260901022632.png)
 
