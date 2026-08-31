@@ -1,4 +1,7 @@
-⁹
+
+![image alt](Untitled1_20260901021113.png)
+
+
 
 ![image alt](Untitled3_20260831173332.png)
 
@@ -48,4 +51,5 @@ Aww Hii @KALE1D0SCOPE <<333 💗💗
 
 ```Thank you for visiting ^_^```
 
+![image alt](Untitled1_20260901021005.png)
 
