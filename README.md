@@ -2,8 +2,8 @@
 
 
 
-![image alt](Untitled1_20260831171217.png)
-🎀  🖤
+![image alt](31a0ff56-6b38-4e86-80bd-6c6b5cf37ec4.jpeg)
+💉
 
 ♡
 ╭─────────────── ⋆⋅☆⋅⋆ ───────────────╮
@@ -20,7 +20,7 @@ _♡ c*h is always welcome._
 
 
 
-I tend to observe first before opening up. Once I'm comfortable, expect random thoughts, jokes, and way too much excitement over things I like. 🎀
+I tend to observe first before opening up. Once I'm comfortable, expect random thoughts, jokes, and way too much excitement over things I like. ✒
 
 
 
