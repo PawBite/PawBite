@@ -9,6 +9,17 @@
 ![image alt](31a0ff56-6b38-4e86-80bd-6c6b5cf37ec4.jpeg)
 💉
 
+「
+        Caretaker fictkin
+   ``I'll cure you.``
+   💉🐾
+
+
+                           】
+
+![Alt text](caretaker-caretaker-die-of-death.gif)
+
+
 ♡
 ╭─────────────── ⋆⋅☆⋅⋆ ───────────────╮
 
