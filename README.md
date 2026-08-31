@@ -9,13 +9,13 @@
 ![image alt](31a0ff56-6b38-4e86-80bd-6c6b5cf37ec4.jpeg)
 💉
 
-「
-        Caretaker fictkin
+
+「        Caretaker fictkin
    ``I'll cure you.``
    💉🐾
 
 
-                           】
+               🐾         」
 
 ![Alt text](caretaker-caretaker-die-of-death.gif)
 
@@ -40,7 +40,7 @@ I tend to observe first before opening up. Once I'm comfortable, expect random t
 
 Aww Hii @KALE1D0SCOPE <<333 💗💗
 
-
+[ check strwpage ]
 
 ╭─────────────── ⋆⋅☆⋅⋆ ───────────────╮
 ![Alt Text](4a01599692eaa47afc113c5a3b043ed8.gif)
