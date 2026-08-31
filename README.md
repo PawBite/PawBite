@@ -38,6 +38,14 @@ _♡ c*h is always welcome._
 ![image alt](6dbde2e4f3701b43122a2cb472350766.jpg)
 
 
+![image alt](3d77931a-43f2-4cc1-95f0-f4a8999e16c5.jpeg) ![image alt](356a17da-8cd1-44d9-a5f1-9c06fd7f937c.jpeg) ![image alt](146df2e8-2de8-4cfb-9611-bf7196610143.jpeg) ![image alt](aafa241a-9a0e-4cd0-a633-feaf6fb56783.jpeg)
+
+
+
+
+
+
+
 I tend to observe first before opening up. Once I'm comfortable, expect random thoughts, jokes, and way too much excitement over things I like. ✒
 
 
