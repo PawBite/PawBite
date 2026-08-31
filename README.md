@@ -16,10 +16,11 @@ _♡ c*h is always welcome._
 
 ╰─────────────── ⋆⋅☆⋅⋆ ───────────────╯
 
+![image alt](6dbde2e4f3701b43122a2cb472350766.jpg)
 
--
+
 I tend to observe first before opening up. Once I'm comfortable, expect random thoughts, jokes, and way too much excitement over things I like. ✒
--
+
 
 
 Aww Hii @KALE1D0SCOPE <<333 💗💗
