@@ -50,7 +50,7 @@ Aww Hii @KALE1D0SCOPE <<333 💗💗
 
 
 ╭─────────────── ⋆⋅☆⋅⋆ ───────────────╮
-![Alt Text](4a01599692eaa47afc113c5a3b043ed8.gif)
+![Alt Text](QTPq2GC.gif)
 
 
 ```Thank you for visiting ^_^```
