@@ -47,7 +47,12 @@ I tend to observe first before opening up. Once I'm comfortable, expect random t
 
 Aww Hii @KALE1D0SCOPE <<333 💗💗
 
-
+MY LINKS
+ V
+ V
+ [Click here](https://guns.lol/appleqk)
+ [Click here](https://appleisherewebsitestrawpage.straw.page)
+ [Click here](https://whalerus.atabook.org)
 
 ╭─────────────── ⋆⋅☆⋅⋆ ───────────────╮
 ![Alt Text](QTPq2GC.gif)
