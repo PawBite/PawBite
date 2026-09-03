@@ -1,4 +1,6 @@
 
+# [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=24&pause=1000&color=FF69B4&center=true&vCenter=true&width=500&lines=Hello!+%E2%9C%A8;Welcome+to+my+profile!+%F0%9F%8E%80;Have+a+great+day!+%F0%9F%92%97)](https://git.io/typing-svg)
+
 ![image alt](Untitled4_20260901021823.png)
 
 
