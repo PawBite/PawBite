@@ -30,7 +30,7 @@
 
 ##  𝑩𝒆𝒇𝒐𝒓𝒆 𝒀𝒐𝒖 𝑰𝒏𝒕𝒆𝒓𝒂𝒄𝒕
  
-
+( please do not vent to me, I'd rather prefer you ask first, I'm your friend not your personal Unlicensed Therapist.)
 
 _♡ c*h is always welcome._
 
