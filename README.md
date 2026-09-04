@@ -42,8 +42,7 @@ _♡ c*h is always welcome._
 ![image alt](Untitled6_20260901033918.png)
 
 
-I tend to observe first before opening up. Once I'm comfortable, expect random thoughts, jokes, and way too much excitement over things I like. <p align="center"> <img src="images.png" width="150"> </p>
-
+I tend to observe first before opening up. Once I'm comfortable, expect random thoughts, jokes, and way too much excitement over things I like. 
 
 
 
