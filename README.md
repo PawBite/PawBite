@@ -42,7 +42,7 @@ _♡ c*h is always welcome._
 ![image alt](Untitled6_20260901033918.png)
 
 
-I tend to observe first before opening up. Once I'm comfortable, expect random thoughts, jokes, and way too much excitement over things I like. ✒
+I tend to observe first before opening up. Once I'm comfortable, expect random thoughts, jokes, and way too much excitement over things I like. ✒ ![sticker](images.png)
 
 
 
@@ -61,7 +61,7 @@ MY LINKS
 ![Alt Text](QTPq2GC.gif)
 
 
-```Thank you for visiting ^_^```
+
 
 ![image alt](Untitled4_20260901022632.png)
 
