@@ -35,7 +35,7 @@ _♡ c*h is always welcome._
 
 ╰─────────────── ⋆⋅☆⋅⋆ ───────────────╯
 
-![image alt](6dbde2e4f3701b43122a2cb472350766.jpg)
+![image alt](images (2).jpeg)
 
 
 ![image alt](Untitled6_20260901033918.png)
