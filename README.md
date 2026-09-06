@@ -5,7 +5,7 @@
 
 
 
-![image alt](080660c419d1b9445ea18570c9bdd52d.jpg)
+![image alt](177f7dbd8dfb90445587c447fd0808a5.jpg)
 
 
 ★
@@ -14,9 +14,8 @@
 💉
 
 
-「        Caretaker fictkin
-   ``I'll cure you.``
-   💉🐾
+「         Finn The FishBowl
+   🐾
 
 
                🐾         」
@@ -24,8 +23,8 @@
 ![Alt text](caretaker-caretaker-die-of-death.gif)
 
 
-![image alt](Untitled4_20260901021941.png)
-♡
+![image alt](Untitled10_20260907050944.png)
+☆
 ╭─────────────── ⋆⋅☆⋅⋆ ───────────────╮
 
 ##  𝑩𝒆𝒇𝒐𝒓𝒆 𝒀𝒐𝒖 𝑰𝒏𝒕𝒆𝒓𝒂𝒄𝒕
