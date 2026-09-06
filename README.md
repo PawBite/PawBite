@@ -5,7 +5,7 @@
 
 
 
-![image alt](Untitled3_20260831173332.png)
+![image alt](080660c419d1b9445ea18570c9bdd52d.jpg)
 
 
 ★
