@@ -1,7 +1,7 @@
 
 # ![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=24&pause=1000&color=A9FF70&center=true&vCenter=true&width=500&lines=Hey+.+.;Come+here.;let+me+heal+you;don't+give+up%2C+get+up.)
 
-![image alt](Untitled4_20260901021823.png)
+![image alt](Untitled12_20260907183133.png)
 
 
 
