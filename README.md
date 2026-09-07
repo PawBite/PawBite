@@ -28,7 +28,7 @@
 
 ##  𝑩𝒆𝒇𝒐𝒓𝒆 𝒀𝒐𝒖 𝑰𝒏𝒕𝒆𝒓𝒂𝒄𝒕
  
-( please do not vent to me, I'd rather prefer you ask first, I'm your friend not your personal Unlicensed Therapist.)
+# ( please do not vent to me, I'd rather prefer you ask first, I'm your friend not your personal Unlicensed Therapist.)
 
 _♡ c*h is always welcome._
 
@@ -40,7 +40,7 @@ _♡ c*h is always welcome._
 ![image alt](Untitled6_20260901033918.png)
 
 
-I tend to observe first before opening up. Once I'm comfortable, expect random thoughts, jokes, and way too much excitement over things I like. 
+# I tend to observe first before opening up. Once I'm comfortable, expect random thoughts, jokes, and way too much excitement over things I like. 
 
 
 
@@ -57,7 +57,7 @@ MY LINKS
  
  [Click here](https://whalerus.atabook.org)
 ╭─────────────── ⋆⋅☆⋅⋆ ───────────────╮
-![Alt Text](images(1).mp4)
+![Alt Text](images-(1).mp4)
 
 
 
