@@ -57,7 +57,7 @@ MY LINKS
  
  [Click here](https://whalerus.atabook.org)
 ╭─────────────── ⋆⋅☆⋅⋆ ───────────────╮
-![Alt Text](QTPq2GC.gif)
+![Alt Text](image.mp4)
 
 
 
