@@ -20,8 +20,7 @@
 
                🐾         」
 
-![image alt](Untitled11_20260907052502.png)
-
+![image alt](Untitled13_20260907192446.png)
 
 ![image alt](Untitled10_20260907050944.png)
 ☆
