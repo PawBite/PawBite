@@ -34,8 +34,7 @@ _♡ c*h is always welcome._
 
 ╰─────────────── ⋆⋅☆⋅⋆ ───────────────╯
 
-![image alt](373d6d3d3795ae8aa296dadfefbf9c36.jpg)
-
+![image alt](Untitled14_20260908012545.png)
 
 ![image alt](Untitled6_20260901033918.png)
 
@@ -56,8 +55,8 @@ MY LINKS
  [Click here](https://appleisherewebsitestrawpage.straw.page)
  
  [Click here](https://whalerus.atabook.org)
-╭─────────────── ⋆⋅☆⋅⋆ ───────────────╮
-![Alt Text](images-(1).mp4)
+╭─────────────── ⋆⋅☆⋅⋆ 
+
 
 
 
